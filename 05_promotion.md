@@ -71,7 +71,7 @@ find glowing vial of suppressant
 
 decide to escape and get backup. met by a crowd of goons in the elevator
 
-![fade to black](https://memegenerator.net/img/instances/54579962.jpg "fade to black")
+![fade to black](https://c.tenor.com/Lb1iI4sJoJwAAAAC/friday-smokey.gif "fade to black")
 
 stella learns from jenna that a man has been stalking affinity since freshman year, appearing in many
 photos of her making eye contact with the camera.
