@@ -1,5 +1,5 @@
 # Thursday night
-![capital_burger](<https://s31832.pcdn.co/wp-content/uploads/2021/11/11.8R-Capital-Burger-1.jpg>)
+![capital_burger](<https://s31832.pcdn.co/wp-content/uploads/2021/11/11.8R-Capital-Burger-1.jpg> "borgor")
 
 Hit up jenna, avoiding hero agency or phones via github commit message
 
